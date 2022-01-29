@@ -4,3 +4,5 @@ I am very excited for the project, and have found this class and material extrem
 It is very timely as my organization is approaching the acceptance phase of an implementation. 
 It makes me wish I had taken this class sooner!
 It would have been very helpful!
+
+Erica Carroll
